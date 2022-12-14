@@ -1,2 +1,2 @@
 # GenshinModdingImpactVN-Asset
-Dump dump dump dump
+Dump đồ GENSHIN IMPACT
